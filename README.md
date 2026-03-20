@@ -1,10 +1,11 @@
 ![3nqokr](https://github.com/user-attachments/assets/51ecfad1-8dc4-4556-9bdc-a72e8cb7e6e4)
 
-Hi ! u can call me Nono\Norx\Nora or idk whatever u want
+Hi ! u can call me Nono\Nora 
 
-Yeah, im new on Git so i'd like to make some new friends here
+Yeah, im new on Git so i'd like to make some new friends here 
 
-My english is not perfect cuz im actually from Hungary so if i say something wrong u can correct me just dont making me feel like an idiot (or u can just ignoring. ig its not so bad that u cant understand what im trying to say)
+My english is not perfect cuz im actually from Hungary so if i say something wrong u can correct me just dont making me feel like an idiot (or u can just ignoring. ig its not so bad that u cant understand what im trying to say) 
+
 
 idk what else to say, so...:
 
