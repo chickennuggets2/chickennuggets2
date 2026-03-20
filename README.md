@@ -8,9 +8,11 @@ My english is not perfect cuz im actually from Hungary so if i say something wro
 
 Im mostly with my friends but if I see c+h in your name and I'm alone, I'll probably go to you.
 
-Sometimes im pretty random and I like to joke around, but if u r more sensitive, feel free to tell me if something makes u uncomfortable. Unfortunately, sometimes I dont pay attention to my words and I might offend you, which is never my intention. 
+Sometimes im pretty random and I like to joke around, but if u r more sensitive, feel free to tell me if something makes u uncomfortable. Unfortunately, sometimes I dont pay attention to my words and I might offend u, which is never my intention. 
 
 I think the DNI part is clear...racist, homophobe, transphobe, darkshipper, anyone who judges me because of my interests...etc.
+
+I get bored of a pony quickly, so u won't see the same one in three days.
 
 idk what else to say, so...:
 
