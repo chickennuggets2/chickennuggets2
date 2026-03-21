@@ -36,7 +36,7 @@ idk what else to say, so...:
 
 ---
 
-
+![tumblr_f62f8b5d68951e3c4126275a40cc5eda_af33a6b5_100](https://github.com/user-attachments/assets/f886b95f-c365-48ff-9996-0495e070583a)
 <img width="99" height="55" alt="oZi8dQw" src="https://github.com/user-attachments/assets/11b55679-0ea2-44a1-b3e1-2a66675fbe5d" />
 <img width="99" height="56" alt="tumblr-7be01a02120e1951282a0a3bfc3cb7da-aa4e8e92-100" src="https://github.com/user-attachments/assets/36a371d0-aec2-497d-80ed-b22a58ffaf96" />
 <img width="99" height="57" alt="Tumblr_l_945810062362220" src="https://github.com/user-attachments/assets/976be9b2-914d-47c7-8621-80caf3f9350b" />
@@ -61,6 +61,7 @@ idk what else to say, so...:
 ![petrapixel-cannibalism](https://github.com/user-attachments/assets/da575573-80d9-4a72-b33c-2dc345c8fb30)
 ![psychological-horror](https://github.com/user-attachments/assets/48c3fe0b-fe43-47d9-8b71-abbca08e5401)
 <img width="99" height="57" alt="ddtf0uk-1f6e2358-877e-417a-b2a3-7686856434d2" src="https://github.com/user-attachments/assets/0eccf94f-834e-4dca-8bdf-a6293b8f2860" />
+
 
 
 
