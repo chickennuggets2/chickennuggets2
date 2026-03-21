@@ -27,6 +27,15 @@ idk what else to say, so...:
 ![be-gay-do-crime](https://github.com/user-attachments/assets/de69ace0-0d80-4624-a0e1-3acee37e028e)
 ![b (32)](https://github.com/user-attachments/assets/e1b6b3fc-2755-478e-a2ab-6635b514727e)
 ![tumblr_0dbb1ab0086e09b78e402dbc577cf650_0cd7ce82_250](https://github.com/user-attachments/assets/787ca0a5-90c7-4246-ada1-0c3f6ac23b91)
+![tumblr_a42b99998cd3ef1315454d1ab2066421_cf631b40_250](https://github.com/user-attachments/assets/89cff11b-a882-47ce-b05f-35262b0d8330)
+ 
+<img width="198" height="112" alt="tumblr_5fd8ddff175e02e5f515f154f934c6be_eae7b716_250" src="https://github.com/user-attachments/assets/c05277fb-e7c4-4969-8c7b-979a49b6fbbc" />
+<img width="198" height="112" alt="tumblr_764f07b0224cffd1b7aeb49e601b54c8_fee572d3_250" src="https://github.com/user-attachments/assets/d3df813f-a7ff-48fd-a431-cac354e918a8" />
+<img width="198" height="112" alt="tumblr_a812e66922c3a4c02f6733c0c019c2a3_7e57e452_250" src="https://github.com/user-attachments/assets/ce51635c-89a0-4c41-b520-0aa7741eea73" />
+<img width="198" height="112" alt="tumblr_1d4dd07b71cde2e3c90a8de7b8a2a121_a3f0bb9a_250" src="https://github.com/user-attachments/assets/1044e87f-90b2-4fab-81e6-8ea00e88412c" />
+
+---
+
 
 <img width="99" height="55" alt="oZi8dQw" src="https://github.com/user-attachments/assets/11b55679-0ea2-44a1-b3e1-2a66675fbe5d" />
 <img width="99" height="56" alt="tumblr-7be01a02120e1951282a0a3bfc3cb7da-aa4e8e92-100" src="https://github.com/user-attachments/assets/36a371d0-aec2-497d-80ed-b22a58ffaf96" />
@@ -37,10 +46,6 @@ idk what else to say, so...:
 <img width="97" height="57" alt="Tumblr-l-160677726759120" src="https://github.com/user-attachments/assets/8e288576-1385-4ba0-91c1-552f8a3b16dd" />
 <img width="99" height="55" alt="d7jq3d6-574356f0-348b-49d0-b144-aa9b2169ede4" src="https://github.com/user-attachments/assets/5c65d423-2137-4ea8-83e7-90f6a002694c" />
 
-![Tumblr-l-267169922953550](https://github.com/user-attachments/assets/b1ef24f0-5b7e-4733-87e3-f29321c70e68)
-<img width="99" height="56" alt="black-butler-ciel-phantomhive-stamp-by-xiahism-d4uun15-fullview" src="https://github.com/user-attachments/assets/1ee21846-6a27-4593-b72c-9d1c26642804" />
-<img width="99" height="56" alt="Tumblr-l-162137017788876" src="https://github.com/user-attachments/assets/be943787-967e-491f-a0f1-1cb4368d6499" />
-![Tumblr-l-293888267478305](https://github.com/user-attachments/assets/ab257552-306e-4ed5-bb14-10688f155d65)
 ![Tumblr_l_146373980684213](https://github.com/user-attachments/assets/4195312c-2c0e-4652-8543-bd0bcfda60a6)
 ![Tumblr_l_940867929011970](https://github.com/user-attachments/assets/7a784623-934b-4f3f-9088-7affb3c22501)
 <img width="99" height="56" alt="dgp9fzr-cf87b4e8-8ac3-41c7-a351-a26ca1a54a74" src="https://github.com/user-attachments/assets/f01e4eab-08a0-4969-91f5-8a7c6619338e" />
@@ -55,10 +60,12 @@ idk what else to say, so...:
 ![7cc79db923d2d77cec6bcd6fdcbdb900f4e75029](https://github.com/user-attachments/assets/40ec0e35-90ac-4f15-899b-0da96579f1e4)
 ![petrapixel-cannibalism](https://github.com/user-attachments/assets/da575573-80d9-4a72-b33c-2dc345c8fb30)
 ![psychological-horror](https://github.com/user-attachments/assets/48c3fe0b-fe43-47d9-8b71-abbca08e5401)
+<img width="99" height="57" alt="ddtf0uk-1f6e2358-877e-417a-b2a3-7686856434d2" src="https://github.com/user-attachments/assets/0eccf94f-834e-4dca-8bdf-a6293b8f2860" />
 
 
 
-<img width="963" height="67" alt="Untitled1094-20240909115922" src="https://github.com/user-attachments/assets/b983003a-a9ac-43d2-a5e6-ad9a04533723" />
+![blooddivider](https://github.com/user-attachments/assets/4508e425-4179-4acf-b75a-d7dc1f4329e5)
+
 
 
 
@@ -71,6 +78,7 @@ idk what else to say, so...:
 
 
 
+---
 
 
 
