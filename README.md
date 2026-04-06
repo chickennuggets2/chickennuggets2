@@ -3,7 +3,6 @@
 
 × Hi ! u can call me Nono\Nora 
 
-× Im new on Git so i'd like to make some new friends here 
 
 × My english is not perfect cuz im actually from Hungary so if i say something wrong u can correct me without making me feel like an idiot (or u can just ignoring. ig its not so bad that u cant understand what im trying to say) 
 
