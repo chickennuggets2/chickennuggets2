@@ -33,6 +33,7 @@ idk what else to say, so...:
 ![Zx0zO0s](https://github.com/user-attachments/assets/a6f1ca46-dfc1-4c90-b87d-f57119134182)
 
 <img width="198" height="112" alt="tumblr_5fd8ddff175e02e5f515f154f934c6be_eae7b716_250" src="https://github.com/user-attachments/assets/c05277fb-e7c4-4969-8c7b-979a49b6fbbc" />
+
 <img width="198" height="112" alt="tumblr_764f07b0224cffd1b7aeb49e601b54c8_fee572d3_250" src="https://github.com/user-attachments/assets/d3df813f-a7ff-48fd-a431-cac354e918a8" />
 <img width="198" height="112" alt="tumblr_a812e66922c3a4c02f6733c0c019c2a3_7e57e452_250" src="https://github.com/user-attachments/assets/ce51635c-89a0-4c41-b520-0aa7741eea73" />
 <img width="198" height="112" alt="tumblr_1d4dd07b71cde2e3c90a8de7b8a2a121_a3f0bb9a_250" src="https://github.com/user-attachments/assets/1044e87f-90b2-4fab-81e6-8ea00e88412c" />
@@ -87,12 +88,11 @@ idk what else to say, so...:
 
 
 <img width="99" height="56" alt="Tumblr-l-162690614425279" src="https://github.com/user-attachments/assets/5e6bfffc-cf4c-4c50-be7b-a95e0f219afd" />
-<img width="99" height="56" alt="mmwv1d" src="https://github.com/user-attachments/assets/65f6e2cb-d19b-4ed5-acf8-a214170b861d" />  <-- my main in genshin^^
-
+<img width="99" height="56" alt="mmwv1d" src="https://github.com/user-attachments/assets/65f6e2cb-d19b-4ed5-acf8-a214170b861d" /> 
 
 ![tumblr-f243f35873eb26e3e53f845cc127ede8-7142f8fe-250](https://github.com/user-attachments/assets/2276ae5c-66bb-4ea0-a64a-313c3b4bab55)
 ![Tumblr-l-162695036318715](https://github.com/user-attachments/assets/2679556d-6149-494c-81e6-fe2535db46e4)
-
+my main in genshin^^
 
 
 
