@@ -45,9 +45,6 @@ idk what else to say, so...:
 <img width="99" height="55" alt="goodomens" src="https://github.com/user-attachments/assets/68c7f178-8c86-44ad-aa05-1a76fff4f06d" /> <img width="98" height="54" alt="d53bx4b-5f5da4f7-f1be-4ed6-8bf6-81b12ab09cb3" src="https://github.com/user-attachments/assets/4fb32a4a-b699-4ed8-80e8-76f7d1b5957d" />
 
 
-
-<img width="240" height="20" alt="tumblr_7ebfbbff45c8db5083b2db218f8a13cc_f6131758_250" src="https://github.com/user-attachments/assets/1c1f1e96-ca59-48b3-a62f-b47b0dc15c5d" />
-
 ---
 
 ![blooddivider](https://github.com/user-attachments/assets/4508e425-4179-4acf-b75a-d7dc1f4329e5)
@@ -64,10 +61,14 @@ idk what else to say, so...:
 
 ---
 
+<img width="320" height="20" alt="tumblr_7ebfbbff45c8db5083b2db218f8a13cc_f6131758_250" src="https://github.com/user-attachments/assets/1c1f1e96-ca59-48b3-a62f-b47b0dc15c5d" />
+
 ![tumblr-f243f35873eb26e3e53f845cc127ede8-7142f8fe-250](https://github.com/user-attachments/assets/2276ae5c-66bb-4ea0-a64a-313c3b4bab55)
 ![Tumblr-l-162695036318715](https://github.com/user-attachments/assets/2679556d-6149-494c-81e6-fe2535db46e4)
+
+
 my main in genshin^^
 
 
-
+<img width="320" height="20" alt="tumblr_7ebfbbff45c8db5083b2db218f8a13cc_f6131758_250" src="https://github.com/user-attachments/assets/1c1f1e96-ca59-48b3-a62f-b47b0dc15c5d" />
 
