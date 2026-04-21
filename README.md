@@ -46,9 +46,9 @@ idk what else to say, so...:
 
 
 
----<img width="240" height="20" alt="tumblr_7ebfbbff45c8db5083b2db218f8a13cc_f6131758_250" src="https://github.com/user-attachments/assets/1c1f1e96-ca59-48b3-a62f-b47b0dc15c5d" />
+<img width="240" height="20" alt="tumblr_7ebfbbff45c8db5083b2db218f8a13cc_f6131758_250" src="https://github.com/user-attachments/assets/1c1f1e96-ca59-48b3-a62f-b47b0dc15c5d" />
 
-
+---
 
 ![blooddivider](https://github.com/user-attachments/assets/4508e425-4179-4acf-b75a-d7dc1f4329e5)
 
